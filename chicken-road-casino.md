@@ -1,4 +1,4 @@
-# chicken Road Casino
+# Chicken Road Casino
 
 Officially launched on April 4, 2024, **Chicken Road** has already captured the hearts of thousands of players worldwide. This casino mini-game, exclusive to certain major operators, offers a unique experience that blends strategy and luck. Your mission is to guide a chicken through a dungeon filled with obstacles while avoiding flames that can set everything on fire! It’s not like any other game, but with a RTP of 98% and the chance to win up to $20,000, thrill-seekers will feel right at home. Ready to test your nerves ?
 
