@@ -13,6 +13,8 @@ The game’s concept is easy to understand but offers an exciting challenge with
 
 ⏩⏩⏩[**Start Playing Chicken Road Now and Test Your Luck !**](https://fspace.link/register) 
 
+![Chicken Road Casino](chicken-road-casino.jpg)
+
 ## Where to Play Chicken Road?
 
 **Chicken Road** is available at all casinos partnered with Inout Games, as well as exclusively on certain major platforms. Playing this thrilling game is now easier than ever, with full accessibility on both mobile and desktop devices. The partnered casinos are known for their reliability and security, ensuring a worry-free experience.
